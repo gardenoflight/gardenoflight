@@ -6,6 +6,11 @@ why is this so difficult to edit (its not im just lazy)
 
 follow my spotify 💪 i love buck tick please go listen to buck tick
 
+[my spotify](https://open.spotify.com/user/bbyj9w4xonb7pv7xhu7gr7h78?si=ec855e36f1e841eb)
+
+leave a note too :3 
+
+[guest page](https://www.yourworldoftext.com/~hanako/toyaaoyagi)
 
 <!--
 **reigensburgers/reigensburgers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
