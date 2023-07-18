@@ -4,8 +4,6 @@
 
 why is this so difficult to edit
 
-read my carrd :3 
-
 follow my spotify 💪
 
 
