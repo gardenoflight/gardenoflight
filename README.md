@@ -1,4 +1,13 @@
-### meow 👋
+### the voices
+----
+<img src="https://github.com/reigensburgers/reigensburgers/assets/64338411/0e48dc0d-f481-49b1-92f8-7867f71851ba" width="500" height="500"> 
+
+why is this so difficult to edit
+
+read my carrd :3 
+
+follow my spotify 💪
+
 
 <!--
 **reigensburgers/reigensburgers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
