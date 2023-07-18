@@ -4,7 +4,7 @@
 
 why is this so difficult to edit (its not im just lazy)
 
-follow my spotify 💪
+follow my spotify 💪 i love buck tick please go listen to buck tick
 
 
 <!--
