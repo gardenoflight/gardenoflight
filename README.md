@@ -12,6 +12,8 @@ leave a note too :3
 
 [guest page](https://www.yourworldoftext.com/~hanako/toyaaoyagi)
 
+add me on discord if u want @arbaccio
+
 
 PLEASE INT WITH ME 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 
 
