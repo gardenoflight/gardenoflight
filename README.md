@@ -4,7 +4,7 @@
 
 why is this so difficult to edit (its not im just lazy)
 
-follow my spotify 💪 i love buck tick please go listen to buck tick
+follow my spotify 💪 i love buck tick please go listen to buck tick AND. i got some pretty banger playlists Not Gonna Lie. Not to Toot my own horn but they are good... i think.. pls..
 
 [my spotify](https://open.spotify.com/user/bbyj9w4xonb7pv7xhu7gr7h78?si=ec855e36f1e841eb)
 
