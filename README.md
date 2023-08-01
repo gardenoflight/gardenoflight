@@ -14,6 +14,9 @@ leave a note too :3
 
 add me on discord if u want @arbaccio
 
+here is my twitter. i post art on occassion
+
+[twitter >_<](https://twitter.com/reigensburgers)
 
 PLEASE INT WITH ME 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 😭 
 
