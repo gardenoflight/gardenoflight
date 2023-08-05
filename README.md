@@ -19,7 +19,7 @@ please dont be afraid to interact i Love meeting people with the same interests 
 <img align="left" alt="Coding" src="https://64.media.tumblr.com/7f06ba415f6b2fcdfeb1ed97bc137367/9a591c2777a533ae-1a/s100x200/05af04dee1ba2152d4642d876cee31c7d0d75223.pnj" width="200" height="100">
 <img align="left" alt="Coding" src="https://64.media.tumblr.com/ecbae154bbc6a2da0d2253b31cb85a9e/186bd89cfe934a48-8b/s100x200/acf0425ef3d31c7a429401c7cd0e8065e98fb299.pnj" width="200" height="100">
 <img align="left" alt="Coding" src="https://64.media.tumblr.com/92d9ce15e83e3cade8280a1787a05336/27657e071140aff0-6b/s250x400/af655a9a051513aef280c08fb7f2f903c58e5f4b.gifv" width="200" height="100">
-<img align="left" alt="Coding" src="https://64.media.tumblr.com/4a51739c7f159a621b21460f0f452154/tumblr_pbdpevFdkz1xz2nuuo1_250.png" width="170" height="100">
+<img align="left" alt="Coding" src="https://64.media.tumblr.com/4a51739c7f159a621b21460f0f452154/tumblr_pbdpevFdkz1xz2nuuo1_250.png" width="165" height="100">
 
 
 
