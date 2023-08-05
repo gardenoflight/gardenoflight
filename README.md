@@ -1,6 +1,6 @@
 ### the voices
 ----
-<img src="https://github.com/reigensburgers/reigensburgers/assets/64338411/0e48dc0d-f481-49b1-92f8-7867f71851ba" width="500" height="500"> wow hes just like me!
+<img align="left" alt="Coding" src="https://github.com/reigensburgers/reigensburgers/assets/64338411/0e48dc0d-f481-49b1-92f8-7867f71851ba" width="500" height="500"> wow hes just like me!
 
 why is this so difficult to edit (its not im just lazy)
 
