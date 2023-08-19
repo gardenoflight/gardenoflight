@@ -11,6 +11,9 @@ please dont be afraid to interact i Love meeting people with the same interests 
 
 [guest page](https://www.yourworldoftext.com/~hanako/toyaaoyagi)
 
+[ask a question :3](https://curiouscat.live/akirenbug) (idk how this works)
+
+
 [twitter >_<](https://twitter.com/reigensburgers)
 
 [my spotify](https://open.spotify.com/user/bbyj9w4xonb7pv7xhu7gr7h78?si=ec855e36f1e841eb)
