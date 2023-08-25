@@ -9,9 +9,11 @@
 please dont be afraid to interact i Love meeting people with the same interests as me (please int) >_< !! i love persona 5 and pjsekai A lot
 
 
+
+[ASK ME A QUESTION :3](https://curiouscat.live/akirenbug) 
+
 [guest page](https://www.yourworldoftext.com/~hanako/toyaaoyagi)
 
-[ask a question :3](https://curiouscat.live/akirenbug) 
 
 
 [twitter >_<](https://twitter.com/reigensburgers)
