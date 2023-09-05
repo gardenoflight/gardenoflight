@@ -5,8 +5,7 @@
 
 
 
-<h4 p align="center"> ermmmm idk what to put here so here is My stuff and some stamps.. most info is in my carrd :3 here is my guest page, twitter (i post art sometimes), and spotify (i have good playlists.) 
-please dont be afraid to interact i Love meeting people with the same interests as me (please int) >_< !! i love persona 5 and pjsekai A lot
+<h4 p align="center"> ermmmm idk what to put here so just read my carrd(s) thanks. also leave me a note i read them ehehehe :3 
 
 
 
