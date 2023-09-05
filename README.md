@@ -21,15 +21,11 @@ please dont be afraid to interact i Love meeting people with the same interests 
 [my spotify](https://open.spotify.com/user/bbyj9w4xonb7pv7xhu7gr7h78?si=ec855e36f1e841eb)
 
 
-
-<video src="https://github.com/gardenoflight/gardenoflight/assets/64338411/0240d53f-4d11-4797-bb19-e993347dfe9c">
-
+<div align="center"> 
 
 
-<img align="left" alt="Coding" src="https://64.media.tumblr.com/7f06ba415f6b2fcdfeb1ed97bc137367/9a591c2777a533ae-1a/s100x200/05af04dee1ba2152d4642d876cee31c7d0d75223.pnj" width="200" height="100">
-<img align="left" alt="Coding" src="https://64.media.tumblr.com/ecbae154bbc6a2da0d2253b31cb85a9e/186bd89cfe934a48-8b/s100x200/acf0425ef3d31c7a429401c7cd0e8065e98fb299.pnj" width="200" height="100">
-<img align="left" alt="Coding" src="https://64.media.tumblr.com/92d9ce15e83e3cade8280a1787a05336/27657e071140aff0-6b/s250x400/af655a9a051513aef280c08fb7f2f903c58e5f4b.gifv" width="200" height="100">
-<img align="left" alt="Coding" src="https://64.media.tumblr.com/4a51739c7f159a621b21460f0f452154/tumblr_pbdpevFdkz1xz2nuuo1_250.png" width="165" height="100">
+https://github.com/gardenoflight/gardenoflight/assets/64338411/0240d53f-4d11-4797-bb19-e993347dfe9c
+
 
 
 
