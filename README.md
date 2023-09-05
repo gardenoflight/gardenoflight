@@ -5,9 +5,9 @@
 
 
 
-<h4 p align="center"> ermmmm idk what to put here so just read my carrd(s) thanks. also leave me a note i read them ehehehe :3 
+<h4 p align="center"> ermmmm idk what to put here so just read my carrd(s). also leave me a note i read them :3
 
-
+links >_<
 
 [ASK ME A QUESTION :3](https://curiouscat.live/akirenbug) 
 
@@ -36,6 +36,9 @@ https://github.com/gardenoflight/gardenoflight/assets/64338411/0240d53f-4d11-479
 <!--
 **reigensburgers/reigensburgers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
+<img src= "">
+<img src= "">
+<img src= "">
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
