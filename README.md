@@ -26,7 +26,6 @@ links >_<
 https://github.com/gardenoflight/gardenoflight/assets/64338411/0240d53f-4d11-4797-bb19-e993347dfe9c
 
 
-<img src= "https://64.media.tumblr.com/762113271454f0518a36824f20be2488/6d57c561e2e1e2db-9e/s250x400/fa587c72b9c7d240703b2ac3ce8d50189e58c15a.pnj">
 <img src= "https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg">
 <img src= "https://64.media.tumblr.com/7f06ba415f6b2fcdfeb1ed97bc137367/9a591c2777a533ae-1a/s100x200/05af04dee1ba2152d4642d876cee31c7d0d75223.pnj">
 <img src= "https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5565d81d-6868-4394-9a89-52dcc91bc7b0/dc5i41s-89d39c0e-2f2d-456d-9bce-0ac65cbce31b.png/v1/fill/w_99,h_56/dancing_star_night_by_necroticmaster_dc5i41s-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC81NTY1ZDgxZC02ODY4LTQzOTQtOWE4OS01MmRjYzkxYmM3YjBcL2RjNWk0MXMtODlkMzljMGUtMmYyZC00NTZkLTliY2UtMGFjNjVjYmNlMzFiLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.BEwVRgcL6f5w3jnY271nJK16ZXy609BY97mRc-Q1TF8">
