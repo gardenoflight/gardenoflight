@@ -4,7 +4,7 @@
 <img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="500" height="30"> 
 
 
-<h4 p align="center"> ermmmm idk what to put here so just read my carrd. also leave me a note on my guest page i read them :3
+<h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me a note on my guest page i read them :3
 
 links >_<
 
