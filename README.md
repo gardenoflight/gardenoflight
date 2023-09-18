@@ -4,11 +4,9 @@
 <img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="500" height="30"> 
 
 
-<h4 p align="center"> ermmmm idk what to put here so just read my carrd. also leave me a note i read them :3
+<h4 p align="center"> ermmmm idk what to put here so just read my carrd. also leave me a note on my guest page i read them :3
 
 links >_<
-
-[ASK ME A QUESTION :3](https://curiouscat.live/akirenbug) 
 
 [guest page](https://www.yourworldoftext.com/~hanako/toyaaoyagi)
 
