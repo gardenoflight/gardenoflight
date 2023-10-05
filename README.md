@@ -20,7 +20,7 @@
 
 <div align="center"> 
 
-<img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="400" height="30">  [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="400" height="30"> 
+<img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="300" height="30">  [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="300" height="30"> 
 
 
 
