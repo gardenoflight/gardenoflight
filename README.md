@@ -18,8 +18,8 @@
 
 <div align="center"> 
 
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-https://github.com/gardenoflight/gardenoflight/assets/64338411/0240d53f-4d11-4797-bb19-e993347dfe9c
 
 
 <img src= "https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg">
