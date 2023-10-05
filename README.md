@@ -18,7 +18,7 @@
 
 <div align="center"> 
 
-<img src="https://64.media.tumblr.com/d8846843d544efdbb9af37ab36ad3095/b5ccb3c77a987656-0e/s75x75_c1/a6f80dd731dfcb3d38ce82078dd1063cfe1010a4.gifv"  width=70 height=70> [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/d8846843d544efdbb9af37ab36ad3095/b5ccb3c77a987656-0e/s75x75_c1/a6f80dd731dfcb3d38ce82078dd1063cfe1010a4.gifv"  width=70 height=70>
+<img src="https://64.media.tumblr.com/87fbbae11b68768fe3432049754a83e9/95c007b70b49826f-30/s250x400/96a033d3a8c65312afca0c25539eff0eddfe19da.gifv"> <img src="https://64.media.tumblr.com/93aeef5c57e65e4caead7b132e9841d2/a29972ca77ac042d-2b/s75x75_c1/5478af62138aa937f2ca760907b6100d2345d1bb.gifv"  width=70 height=70> [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/93aeef5c57e65e4caead7b132e9841d2/a29972ca77ac042d-2b/s75x75_c1/5478af62138aa937f2ca760907b6100d2345d1bb.gifv"  width=70 height=70> <img src="https://64.media.tumblr.com/87fbbae11b68768fe3432049754a83e9/95c007b70b49826f-30/s250x400/96a033d3a8c65312afca0c25539eff0eddfe19da.gifv">
 
 
 
