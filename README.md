@@ -1,7 +1,9 @@
 ## <img src= "https://64.media.tumblr.com/5aed40443e4385be93f2ad6148757198/0f5accd32796fa15-34/s75x75_c1/6cfe3f743b5680fa061e9e94d769e5045d595d2d.gifv" width=50 height=50> cape cod, 1985. the summer we were boys for the very last time <img src= "https://64.media.tumblr.com/8b72a71d7cbc687b9cba20ca2930dd69/0f5accd32796fa15-c0/s75x75_c1/17880809559361f47e5de17555b0edfe973fecd6.gifv" width=50 height=50>
 ----
  <img align="left" alt="Coding" src="https://github.com/reigensburgers/reigensburgers/assets/64338411/0e48dc0d-f481-49b1-92f8-7867f71851ba" width="300" height="300">  <h1 p align="center" >  hi im lio :3 
-<img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="500" height="30"> 
+
+ 
+<img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
 
 
 <h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me a note in my guest book i read them :3
@@ -18,7 +20,7 @@
 
 <div align="center"> 
 
-<img src="https://64.media.tumblr.com/87fbbae11b68768fe3432049754a83e9/95c007b70b49826f-30/s250x400/96a033d3a8c65312afca0c25539eff0eddfe19da.gifv"> <img src="https://64.media.tumblr.com/93aeef5c57e65e4caead7b132e9841d2/a29972ca77ac042d-2b/s75x75_c1/5478af62138aa937f2ca760907b6100d2345d1bb.gifv"  width=70 height=70> [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/93aeef5c57e65e4caead7b132e9841d2/a29972ca77ac042d-2b/s75x75_c1/5478af62138aa937f2ca760907b6100d2345d1bb.gifv"  width=70 height=70> <img src="https://64.media.tumblr.com/87fbbae11b68768fe3432049754a83e9/95c007b70b49826f-30/s250x400/96a033d3a8c65312afca0c25539eff0eddfe19da.gifv">
+<img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="400" height="30">  [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) <img src="https://64.media.tumblr.com/dd7577001ff98167f90386232a36e6ea/3375ac4c6a6cdf88-7c/s400x600/e960d5714b3e271aa234636b8cb68679d8c12fbf.gifv" width="400" height="30"> 
 
 
 
