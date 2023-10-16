@@ -9,9 +9,7 @@
 <h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me a note in my guest book i read them :3
 
 
-[guest book](https://lioreal.123guestbook.com/)
-
-
+[guest book](https://lioreal.123guestbook.com/)    ‎  ‎  ‎                 ‎     ‎ [guest page](https://www.yourworldoftext.com/~hanako/renamamiya)
 
 [twitter >_<](https://twitter.com/reigensburgers)
 
