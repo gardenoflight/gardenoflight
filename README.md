@@ -1,6 +1,6 @@
-## <img src= "https://64.media.tumblr.com/5aed40443e4385be93f2ad6148757198/0f5accd32796fa15-34/s75x75_c1/6cfe3f743b5680fa061e9e94d769e5045d595d2d.gifv" width=50 height=50> cape cod, 1985. the summer we were boys for the very last time <img src= "https://64.media.tumblr.com/8b72a71d7cbc687b9cba20ca2930dd69/0f5accd32796fa15-c0/s75x75_c1/17880809559361f47e5de17555b0edfe973fecd6.gifv" width=50 height=50>
+## <p align="center"> <img src= "https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/03c55896bb928977-5c/s75x75_c1/236f62136e53baf3c80ea77c0b351a2bb6b0e734.gifv" width=40 height=40> cape cod, 1985. <img src= "https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/03c55896bb928977-5c/s75x75_c1/236f62136e53baf3c80ea77c0b351a2bb6b0e734.gifv" width=40 height=40>
 ----
- <img align="left" alt="Coding" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">  <h1 p align="center" >  hi im lio :3 
+ <img align="left" alt="Coding" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">  <h1 p align="center" >  lio (real)
 
  
 <img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
