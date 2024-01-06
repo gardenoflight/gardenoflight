@@ -18,7 +18,7 @@
 
 <div align="center"> 
 
-<img src="https://64.media.tumblr.com/7e60fc53a1e60d130e4e35484f91a3bb/a94420c9b5ebfc19-70/s400x600/7d824fc51ca41bdb0f39c71d39f06f2b7be052de.gifv"> [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
+<img src="https://64.media.tumblr.com/f33b7b5b0c6c99185bff4bc832554624/0d5ff8ee3c3b1b96-df/s400x600/99ec0ca9b54b3e056ce5613035d5bb65b7355a39.pnj"> [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
 
 
 
