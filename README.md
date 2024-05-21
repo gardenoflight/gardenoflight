@@ -33,14 +33,6 @@
 
 
 
-
-
-https://github.com/gardenoflight/gardenoflight/assets/64338411/2a69662e-05b2-44fd-a654-c2ffcb937657
-
-
-
-
-
 <!--
 **reigensburgers/reigensburgers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
