@@ -6,10 +6,10 @@
 <img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
 
 
-<h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me a note in my guest book i read them :3 
+<h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me something in my strawpage :3 
 
 
-[guest book](https://lioreal.123guestbook.com/) 
+[strawpage](https://akirenreal.straw.page) 
 
 [guest page](https://www.yourworldoftext.com/~hanako/renamamiya)
 
