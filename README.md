@@ -9,7 +9,7 @@
 <h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me something in my strawpage :3 
 
 
-[strawpage](https://akirenreal.straw.page) 
+[strawpage](https://arbaccio.straw.page/) 
 
 [guest page](https://www.yourworldoftext.com/~hanako/renamamiya)
 
