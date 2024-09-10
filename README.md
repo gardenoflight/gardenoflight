@@ -1,13 +1,15 @@
 ## <p align="center"> <img src="https://64.media.tumblr.com/24737007e74911e5351d8411e4d571a1/dd80c93104890d83-56/s250x400/724ee92ba23906c8f823869bffba7e15327d1513.gifv" height=40> ![](https://komarev.com/ghpvc/?username=gardenoflight&style=for-the-badge&color=lightgrey) <img src="https://64.media.tumblr.com/24737007e74911e5351d8411e4d571a1/dd80c93104890d83-56/s250x400/724ee92ba23906c8f823869bffba7e15327d1513.gifv" height=40>
 ----
- <img align="left" alt="Coding" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">  <h1 p align="center" >  lio (real)
 
  
+<h1 p align="center" >  lio (real) 
 <img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
-
-
 <h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me something in my strawpage :3 
+ 
+<p align="left">
+<img style="float: left;" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">
 
+<p align="right">
 
 [strawpage](https://arbaccio.straw.page/) 
 
