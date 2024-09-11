@@ -3,13 +3,17 @@
 
  
 <h1 p align="center" >  lio (real) 
+ 
 <img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
+
 <h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me something in my strawpage :3 
  
-<p align="left">
-<img style="float: left;" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">
 
-<p align="right">
+<br>
+
+
+<img align="left" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">
+
 
 [strawpage](https://arbaccio.straw.page/) 
 
@@ -20,7 +24,7 @@
 
 <div align="center"> 
 
-<img src="https://64.media.tumblr.com/f33b7b5b0c6c99185bff4bc832554624/0d5ff8ee3c3b1b96-df/s400x600/99ec0ca9b54b3e056ce5613035d5bb65b7355a39.pnj"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
+<img src="https://64.media.tumblr.com/f33b7b5b0c6c99185bff4bc832554624/0d5ff8ee3c3b1b96-df/s400x600/99ec0ca9b54b3e056ce5613035d5bb65b7355a39.pnj"> <br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
 
 
 
