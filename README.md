@@ -1,60 +1,41 @@
-## <p align="center"> <img src="https://64.media.tumblr.com/24737007e74911e5351d8411e4d571a1/dd80c93104890d83-56/s250x400/724ee92ba23906c8f823869bffba7e15327d1513.gifv" height=40> ![](https://komarev.com/ghpvc/?username=gardenoflight&style=for-the-badge&color=lightgrey) <img src="https://64.media.tumblr.com/24737007e74911e5351d8411e4d571a1/dd80c93104890d83-56/s250x400/724ee92ba23906c8f823869bffba7e15327d1513.gifv" height=40>
-----
+<img src="https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj">
+<p align="center">　.　　. 　 ˚　.　　　　 　　.  ✦ ˚ 　　　 　　˚　.　*　　. 　˚　　. 　.  　 　　　˚　　　　　*. 　 ˚　.　　　　 　　.
 
- 
-<h1 p align="center" >  lio (real) 
- 
-<img src="https://64.media.tumblr.com/ff9e858a69259ec0c847ce6dc491732d/010243eda403faae-d0/s75x75_c1/14515fd35d7578041f993034c02dcc62325296de.gifv" width="50" height="50"> 
+### <p align="center"> <em> Hatred is easier than a word as vague as love</em> </p>　　
 
-<h4 p align="center"> ermmmm idk what to put here so just read my carrd. please dont be afraid to int in game or add my socials!! i love meeting new people sm!! also leave me something in my strawpage :3 
+<p align="center">  .　　. 　 ˚　.　 　　˚　　　　　*　　 　　✦　　　.　　.　　　✦　　˚ 　　　 　　˚　.　*　　. 　˚  　　
+   <br>
+  
+<img align="left" src="https://64.media.tumblr.com/87325c09bf1080613fc54efb84c8fb3b/4b21198943ee1c15-09/s1280x1920/1694552b36f414b5744fa94c487b60def41cc513.gifv" width=450 height=550>
+
+ <br> 
+<img align="left" src="https://64.media.tumblr.com/4657c7bcf326dcb05dc252e4e305bdd7/4013f07e3c812471-e1/s250x400/3fc5d16cedef98cbfb8b9804feb467cea285ea67.pnj" width=80 height=80> <img align="left" src="https://64.media.tumblr.com/72d4749f16a937849c6fee3eda337723/2f3f3b9b58dfe902-ca/s1280x1920/be272f623daa4fffbf3aab2b5696156500d55c5f.pnj" width=80 height=80> <img align="left" src="https://64.media.tumblr.com/30c129b18041c305aaf56743e73f676a/a0ca18791eac5e64-d1/s500x750/ed9d69320a4aecd255c84e58593de5e412908edb.pnj" width=80 height=80> <img align="left" src="https://64.media.tumblr.com/1f8bdf31a2204b1c1b4159e9bc53cf3e/a0ca18791eac5e64-2d/s540x810/cd04bfd920d1af2fd81b39bfa5bce3e2a48f1651.pnj" width=80 height=80> <img align="left" src="https://64.media.tumblr.com/22aa3bebe719bce51e9f66993c5b7532/a0ca18791eac5e64-74/s500x750/32abd6919ee1732a9c3857d077acf8ea4ef204e6.pnj" width=80 height=80>  <br>
+<br>
+<br>
+<br>
+
+<div align="center"> 
+<strong>read my carrd + sign my strawpage/atabook</strong>
+<br>
+<br>
  
+[strawpage](https://arbaccio.straw.page/) 
 
 <br>
 
-
-<img align="left" src="https://64.media.tumblr.com/f93917a03fb674cb20db4ee23b0dc785/505f0d4671d7a83a-37/s640x960/9192d36cc9c35f3ccf95b449b20a67f74d400d20.gifv" width="300" height="300">
-
-
-[strawpage](https://arbaccio.straw.page/) 
-
 [atabook](https://lio.atabook.org/)
+
+<br>
 
 [my spotify](https://open.spotify.com/user/bbyj9w4xonb7pv7xhu7gr7h78?si=ec855e36f1e841eb)
 
+<br>
 
-<div align="center"> 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
 
-<img src="https://64.media.tumblr.com/f33b7b5b0c6c99185bff4bc832554624/0d5ff8ee3c3b1b96-df/s400x600/99ec0ca9b54b3e056ce5613035d5bb65b7355a39.pnj"> <br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
+<br>
 
+![](https://komarev.com/ghpvc/?username=gardenoflight&style=for-the-badge&color=ae3432)
 
-
-<img src= "https://64.media.tumblr.com/7f06ba415f6b2fcdfeb1ed97bc137367/9a591c2777a533ae-1a/s100x200/05af04dee1ba2152d4642d876cee31c7d0d75223.pnj">
-<img src= "https://64.media.tumblr.com/724fc355475949ecdf5b723571ee7f31/2f9d20e31e914381-95/s100x200/8d4613123ab192b7e5f7cd9727afbde389fe2be9.pnj" width=100 height=53>
-<img src= "https://64.media.tumblr.com/f5ef1727be3d9c36733e69418dcca231/2503004b1baf1d0f-d6/s100x200/6dfff7154dd4a47de88604fe1b28e397e52692f1.pnj">
-<img src= "https://64.media.tumblr.com/45634051d49006c2b810eb3c7d5111da/4b9e098e1753b2dc-95/s100x200/b682be69d37fd45d67bb796956a11a2aff0986c2.pnj" width=100 height=56>
-<img src= "https://64.media.tumblr.com/713ceaeba56f117c13daa703c7d36493/1c24be733ab4d1cb-4d/s100x200/7d38bf4f93d75e0f970299b89ffe44f25e6e1f7e.gifv">
-<img src= "https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8c913458-9aa6-455c-a5f5-f706f4da0349/d5labht-9c184e03-9f4c-4763-b764-7d34e2628cf6.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhjOTEzNDU4LTlhYTYtNDU1Yy1hNWY1LWY3MDZmNGRhMDM0OVwvZDVsYWJodC05YzE4NGUwMy05ZjRjLTQ3NjMtYjc2NC03ZDM0ZTI2MjhjZjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.2P_-zi7zF3X72_204YQRDYWfh5g_zG8_4YfyzekO-f4">
-<img src= "https://64.media.tumblr.com/ac88a5ab0ff37620affbd0762f535763/22f6db7360cc4c74-3b/s250x400/7c0a3f641b168872b76436176b03feedabb92207.gifv" width=100 height=55>
-<img src= "https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/501df479-2019-45b3-83a3-e839a5ac0790/ddpjxw1-df65bda9-5942-4d9f-879f-bd609fb56492.png/v1/fill/w_101,h_57/jolyne_cujoh_stamp_by_pallasminerva_ddpjxw1-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTciLCJwYXRoIjoiXC9mXC81MDFkZjQ3OS0yMDE5LTQ1YjMtODNhMy1lODM5YTVhYzA3OTBcL2RkcGp4dzEtZGY2NWJkYTktNTk0Mi00ZDlmLTg3OWYtYmQ2MDlmYjU2NDkyLnBuZyIsIndpZHRoIjoiPD0xMDEifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.1YEmrqAQZ1jDhRs8jzfgdznEk2DmZksgX80nr5iw1jY">
-
-
-
-
-
-<!--
-**reigensburgers/reigensburgers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-<img src= "">
-<img src= "">
-<img src= "">
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+<img src="https://64.media.tumblr.com/c7976f33ee1b0f6388cf82bbf6e3848a/5983c063df5aee84-60/s1280x1920/3da9bf2ab0f6225efb79062e5a37170d19a797c9.pnj">
