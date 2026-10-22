@@ -30,7 +30,7 @@
 
 <br>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://www.last.fm/user/hanakokunz) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bbyj9w4xonb7pv7xhu7gr7h78&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <br>
 
